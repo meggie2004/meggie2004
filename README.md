@@ -1,4 +1,4 @@
-**                                   **🤯 🦋 Hey, I'm Maria Gabriella Sica ✨🌙**
+**                                   🤯 🦋 Hey, I'm Maria Gabriella Sica ✨🌙**
 
 📚 I'm currently enrolled at Apple Developer Academy and at the University of Naples federico II, robotics engineering.
 
@@ -9,7 +9,10 @@ The experience at the Apple Developer Academy trained me from a human and profes
 🥰🍿 I'm interested in animals, sports and discover new things.
 
 📨 If you want to reach me: 
+
 • mariagabriellasica@icloud.com
+
 • https://www.linkedin.com/in/maria-gabriella-sica-69b2bb26a?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BpnZgskQYSdyltARGJgCObA%3D%3D
+
 • https://www.instagram.com/mariagabriellasicaa?igsh=ZGd6dGc3ZHdiOTNo&utm_source=qr
 
