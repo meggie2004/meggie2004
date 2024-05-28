@@ -1,6 +1,6 @@
 **🤯 🦋 Hey, I'm Maria Gabriella Sica ✨🌙**
 
-📚 I'm currently enrolled at Apple Developer Academy and at the University of Naples federico II, robotics engineering.
+📚 I'm currently enrolled at Apple Developer Academy and at the University of Naples Federico II, Automation engineering.
 
 The experience at the Apple Developer Academy trained me from a human and professional point of view, allowing me to apply the notions studied at the university; it gave me basics of design and improved my team building, critical thinking and problem-solving skills.
 
